@@ -1,4 +1,4 @@
-Hello and Wozup- 👀 I’m interested in ...
+Wozup!
 
 
 <!---
